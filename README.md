@@ -10,15 +10,17 @@ https://www.notion.so/from-20250629-to-221c563be1b080008f77ef3769c4835d
 
 <hr>
 
-<hr>
+
 
 
 https://x.com/zionadchat
 
 https://bsky.app/profile/zionadchat.bsky.social
+<hr>
 
+<hr>
 
-
+ここで　使う　blender ファイルの倉庫
 
 
 
