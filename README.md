@@ -30,6 +30,9 @@ https://timetimekagura.hatenablog.com/entry/2025/07/18/150714
  https://timetimekagura.hatenablog.com/entry/2025/07/17/030345
 
 
+リアルタイム　520 背景色　切り替え付き
+https://timetimekagura.hatenablog.com/entry/2025/07/19/210947
+
 
 <hr>
 
